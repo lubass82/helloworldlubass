@@ -1,3 +1,4 @@
+![headshot](foto_luca_labbate.jpg)
 # Presentazione
 Ciao a tutti
 
